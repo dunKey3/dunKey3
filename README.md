@@ -1,5 +1,5 @@
-## Striving to not be a clueless Junior Dev
-# Everything about me you would want to know
+## Striving to not be a clueless Junior Dev 🙏
+# Everything about me you would want to know is down below
 
 ## What I'm working on:
 - Way too many things for one
